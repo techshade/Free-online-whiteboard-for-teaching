@@ -4,9 +4,14 @@
 
 In the digital age, online teaching has become the norm, and educators are always on the lookout for the best **free online whiteboard** tools to enhance interactive learning. Whether you are a teacher, tutor, or professional trainer, having an effective **free online whiteboard** can make a significant difference in delivering lessons efficiently. If you're searching for an **Erasor.io alternative free**, then **SketchFlow** is the perfect choice.
 
+
+
+> https\://sketchflow\.space/
+
 ## Why Use a Free Online Whiteboard for Teaching?
 
 A **free online whiteboard** enables educators to:
+
 - Conduct interactive online classes.
 - Illustrate concepts visually in real-time.
 - Collaborate with students remotely.
